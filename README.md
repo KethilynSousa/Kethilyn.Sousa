@@ -8,6 +8,23 @@ Amo gatos, apaixonada por gatos.
  - Conversar
  - Conhecer novos lugares
 
+### Competências: ###
+
+## Atendimento ao Cliente:
+Soluções personalizadas e
+negociação.
+## Resolução de Conflitos:
+Mediação e solução de problemas.
+## Pacote Office: Excel avançado,
+Word, PowerPoint.
+Facilidade com Planilhas e
+## Cálculos Financeiros:
+Organização de dados e análises
+precisas.
+Competências
+## Comportamentais: Proatividade
+e rápida adaptação
+
 ## 📧 Contato
 
 Para mais informações ou dúvidas, entre em contato:
