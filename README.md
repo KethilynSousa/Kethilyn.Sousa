@@ -1,6 +1,7 @@
 # Kethilyn.Sousa   
 
-***É DIVERTIDO jogar dominó, passear no shopping.***
+***Para ser livre é preciso CORAGEM***
+
 Eu gosto de doces derivados de amendoim, doce de leite.
 Amo gatos, apaixonada por gatos.
  - Gatos
