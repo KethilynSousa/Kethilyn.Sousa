@@ -8,26 +8,24 @@ Amo gatos, apaixonada por gatos.
  - Conversar
  - Conhecer novos lugares
 
-### Competências: ###
+# Competências: #
 
-## Atendimento ao Cliente:
-Soluções personalizadas e
-negociação.
-## Resolução de Conflitos:
+### Atendimento ao Cliente:
+Soluções personalizadas e negociação.
+### Resolução de Conflitos:
 Mediação e solução de problemas.
-## Pacote Office: Excel avançado,
-Word, PowerPoint.
-Facilidade com Planilhas e
-## Cálculos Financeiros:
+### Pacote Office: 
+Excel avançado, Word, PowerPoint.
+Facilidade com Planilhas e Cálculos Financeiros:
 Organização de dados e análises
 precisas.
-Competências
-## Comportamentais: Proatividade
-e rápida adaptação
+
+### Comportamentais: 
+Proatividade e rápida adaptação
 
 ## 📧 Contato
 
 Para mais informações ou dúvidas, entre em contato:
 
 - LinkedIn: [Ket Sousa](http://linkedin.com/in/kethilyn-sousa-306b0371 )
-- E-mail: Ket.lovera@gmail.com
+- E-mail: Ket.Sousa@gmail.com
