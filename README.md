@@ -2,12 +2,13 @@
 
 ***Para ser livre é preciso CORAGEM***
 
-Eu gosto de doces derivados de amendoim, doce de leite.
-Amo gatos, apaixonada por gatos.
+Paixões
+- Café
  - Gatos
  - Doces
  - Conversar
  - Conhecer novos lugares
+
 
 # Competências: #
 
